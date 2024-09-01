@@ -10,4 +10,4 @@ I am a highly skilled and motivated professional with a strong background in web
 ### 🏆 Achievements
 - **North Jakarta 2nd Winner Students Skill Competition Web App Development 2017**
 - **Jakarta Region 6th Winner Students Skill Competition Web App Development 2018**
-- **National 2nd Winner AMIKOM IT Competition for IT and Business**
+- **National 2nd Winner AMIKOM IT Competition for IT and Business 2020**
